@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @brockb2000
+- 👀 I’m interested in becoming an analyst, particularly data, inventory, or business analyst
+- 🌱 I’m currently learning expanding my skills and credentials in this field and recently finished a BS in Business Analysis and Management
